@@ -1,0 +1,1 @@
+we aim to provide valuable insights into the historical performance of Netflix stocks, offering stakeholders a deeper understanding of its market behavior and potential future trends. This analysis will be instrumental in informing investment decisions and strategies related to Netflix stocks. 
